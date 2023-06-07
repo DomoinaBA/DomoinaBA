@@ -41,7 +41,7 @@ Flexibilité selon vos besoins : Je m'adapte à vos besoins spécifiques et vous
 
 
 
-Si vous souhaitez propulser votre activité de coaching, n'hésitez pas à me contacter mah6aimee@gmail.com ou en message privé sur mon compte facebook https://web.facebook.com/DomoinaBA
+Si vous souhaitez propulser votre activité de coaching, n'hésitez pas à me contacter mah6aimee@gmail.com ou en message privé sur mon compte facebook https://web.facebook.com/DomoinaBA ou linkedin https://www.linkedin.com/in/domoina-assistante-virtuelle/
 
 Discutons ensemble de la manière dont je peux vous aider à atteindre vos objectifs.
 
